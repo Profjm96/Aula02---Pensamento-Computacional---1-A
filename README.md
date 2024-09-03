@@ -1,0 +1,1 @@
+# Aula02---Pensamento-Computacional---1-A
